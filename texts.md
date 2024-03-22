@@ -1,0 +1,3 @@
+My name is Mattias Andersson, 34 years old, and a proud parent of four wonderful children. My heart is dedicated to family life, and I cherish spending time with my kids. Beyond my role as a parent, I am passionate about programming and web development. I thrive on challenges and constantly strive to evolve both in my profession and in life overall.
+
+When I'm not immersed in code, you'll often find me in workout gear, as I enjoy training in both strength and endurance. Nature is my sanctuary, and I relish being outdoors as much as possible. Embracing constant growth and exploring new possibilities is my life philosophy, and I see each day as an opportunity to learn, expand, and create my own future.
